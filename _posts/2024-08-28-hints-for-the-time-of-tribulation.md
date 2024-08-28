@@ -4,7 +4,6 @@ date: 2024-08-28 02:38:00 -0500
 categories: [prophecy, end-times]
 tags: [tribulation, prophecy, signs]
 description: Exploring reasons why the time of tribulation might be near and the significance of various prophetic signs.
-pin: true
 ---
 
 **Caveat lector**: The hints or reasons stated here are absolutely based upon the premise that the time of Tribulation or trials is about to begin. This also means there will be different events before His appearing as well as our Hope in Christ being fulfilled. 2024 could fulfill the time for these events to start. It is, however, my objective to promote a mindset, to wake up and realize our time is short.

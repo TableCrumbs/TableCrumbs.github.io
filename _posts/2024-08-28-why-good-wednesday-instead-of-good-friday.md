@@ -4,7 +4,6 @@ date: 2024-08-28 02:38:00 -0500
 categories: [Good Friday, Resurrection]
 tags: [calendar, resurrection]
 description: Exploring the timeline of events from the crucifixion to the resurrection, and why Good Wednesday could be the correct day.
-pin: true
 ---
 
 **Possible Order of Events from Crucifixion Until Resurrection: Matching Timeline**
