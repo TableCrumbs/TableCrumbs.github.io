@@ -49,10 +49,10 @@ pin: true
 
 - [https://www.academia.edu/61012926/Jesus_Crucifixion_Nisan_14_in_30_AD_or_33_AD_A_Robust_Methodology_to_Determine_Julian_Dates_in_the_Late_Second_Temple_Period](https://www.academia.edu/61012926/Jesus_Crucifixion_Nisan_14_in_30_AD_or_33_AD_A_Robust_Methodology_to_Determine_Julian_Dates_in_the_Late_Second_Temple_Period)
 
-- [Passion Week](http://theos-sphragis.info/passion_week_harmonized.html#crucified)
+- [Passion Week](https://theos-sphragis.info/passion_week_harmonized.html#crucified)
 
 - [https://thecreationclub.com/historical-basis-for-believing-jesus-was-crucified-in-ad-30/](https://thecreationclub.com/historical-basis-for-believing-jesus-was-crucified-in-ad-30/)
 
 - [https://www.moresureword.com/whenres.htm](https://www.moresureword.com/whenres.htm)
 
-- [http://www.studiesintheword.org/jesus_birth.htm](http://www.studiesintheword.org/jesus_birth.htm)
+- [https://www.studiesintheword.org/jesus_birth.htm](https://www.studiesintheword.org/jesus_birth.htm)
