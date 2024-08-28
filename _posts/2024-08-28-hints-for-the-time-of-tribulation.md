@@ -87,7 +87,7 @@ The fig tree is always a symbol of a portion of Israel – specifically the area
 
 From AD 70, when the Romans completely destroyed Israel, to 1948 (or 1878 years), there was no Israel, and now that Israel was restored in the land, many see this as fulfillment of Bible prophecy. If even a portion of the fig tree starts budding again:
 
-- **Example 1**: Sanhedrin being re-established 2004 — [Source](http://www.thesanhedrin.org)
+- **Example 1**: Sanhedrin being re-established 2004 — [Source](https://www.thesanhedrin.org)
 
 - **Example 2**: Full preparation for the 3rd temple — [Source 1](https://templemountfaithful.org/) and [Source 2](https://www.israel365news.com/73287/school-year-begins-for-third-temple-priests/)
 
