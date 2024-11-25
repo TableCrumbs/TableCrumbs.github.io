@@ -32,7 +32,7 @@ The Passover, celebrated on **Nisan 14**, is critical to dating the crucifixion.
 Astronomical data confirms that **Nisan 14** fell on a **Wednesday** in **AD 30**, making it the only feasible year for the crucifixion between **AD 28 and AD 33**.
 
 For further details, see:  
-[Studies in the Word – Chart 22-36 AD](http://www.studiesintheword.org/chart_22-36AD.htm)
+> Studies in the Word – Chart 22-36 AD - http://www.studiesintheword.org/chart_22-36AD.htm
 
 ---
 
